@@ -1,0 +1,1 @@
+# altechmind.github.io
